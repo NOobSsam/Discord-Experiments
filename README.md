@@ -1,7 +1,7 @@
 ### Discord Experiments 👾
 
 <br />
--  if You like it Give me a star <3
+if You like it Give me a star <3
 </br>
 
 ### How To Get Features 💎
